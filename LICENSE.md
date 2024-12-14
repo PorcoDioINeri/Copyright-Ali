@@ -9,6 +9,8 @@ Negri Siamo quei terroni di Napoli SCP
 
 Solo sissio può toccarmi è farmi qualcosa
 
+Dannj ha preso il palo da aururu ordine di geco 
+
 Contatta il Creatore:
 Discord: sissiogamer_.
 Email: sissiogamer@pentastudios5.it
